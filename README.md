@@ -5,3 +5,5 @@ IT professional practice week 1 git tutorial
 I have two kids
 I have been to Korea
 I almost went missing hiking in Peru
+
+Lorddragonfira: I dont think you have two kids
